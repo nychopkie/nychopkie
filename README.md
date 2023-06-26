@@ -6,7 +6,7 @@ idk where to put here so I'll just like say random things lmao
 
 [guess where would this link go?](https://www.youtube.com/watch?v=dQw4w9WgXcQ "hehe")
 
-- 📫 How to reach me: don't. idk actually if you find me online say hi
+- 📫 How to reach me: if you find me online say hi, i got same username in every place anyways
 - ⚡ Fun fact: [Big-headed African mole-rats exists](https://www.google.com/search?q=african+big+head+mole+rat&rlz=1C1VDKB_zh-HKHK967HK967&sxsrf=AJOqlzVyaNvL4DLtECU-FIPe-rv-OoSonw:1679236113037&source=lnms&tbm=isch&sa=X&ved=2ahUKEwiwsIuAmuj9AhW3RmwGHTqhASUQ_AUoAXoECAEQAw&biw=1920&bih=961&dpr=1#imgrc=IAvAg0t6AfOrAM "rat")
 
 <!--
