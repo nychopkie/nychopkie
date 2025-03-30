@@ -1,7 +1,7 @@
 # hehe
 hehehe hehehehe
 <hr>
-idk where to put here so I'll just like say random things lmao
+idk what to put here so I'll just like say random things lmao
 <br>imma just back my schoolwork here just in case my cloud drive die someday you never know with things nowadays 
 
 [guess where would this link go?](https://www.youtube.com/watch?v=dQw4w9WgXcQ "hehe")
